@@ -5,5 +5,5 @@
  👯 Me encantaría colaborar con la comunidad cripto de América Latina y Argentina.
  💬 las criptomonedas me encantan porque re-definen las finanzas al quitar a los intermediarios.
  📫 Soy Ingeniera de Sistemas, tengo 41 años.
- 😄 Me gustaría encontrar empleo en el área cripto para colaborar a la comunidad y entender y aprender mas, ya no como usuario sino como desarrollador.
+ 😄 Me gustaría encontrar empleo en WEB3 para colaborar a la comunidad y entender y aprender mas, ya no como usuario sino como desarrollador.
  ⚡ Comencé a usar criptomonedas en 2019 cuando me permitieron proteger mis ingresos en medio de la crisis en Venezuela.
